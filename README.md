@@ -1,7 +1,7 @@
 ![4F0CB3CF-A400-4FE7-8ACB-1DA3ECFE37E5](https://github.com/user-attachments/assets/ced2efbf-ca3c-4ce6-9f77-d5fd70187092)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-![IMG_7627](https://github.com/user-attachments/assets/ebb1c3fc-7d20-4c6d-bbe8-b6eeb0b74d9d)
-![profile views?!](https://visitor-badge.laobi.icu/badge?page_id=7cca91)![7ABD48F4-EDB6-45CB-8AA2-40030E222FA3](https://github.com/user-attachments/assets/cadf5c9a-3459-4b10-948a-02533bc703dc)
+
+![profile views?!](https://visitor-badge.laobi.icu/badge?page_id=7cca91)![7ABD48F4-EDB6-45CB-8AA2-40030E222FA3]
 
 ㅤ
 ⠀
