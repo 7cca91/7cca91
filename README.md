@@ -8,11 +8,4 @@
 
 
 
-
-
-
-
-
-
-
 ![DD5729D3-221E-40AA-86A2-A550FFF8FB6E](https://github.com/user-attachments/assets/87bc6f59-6177-4102-bd0e-7bb6ae79b5a8)
